@@ -5,4 +5,4 @@ i
 
 [so](https://bilibili.com/video/BV1UP41147sj)
 
-~~咕咕咕~~
+~~刷贡献的~~
