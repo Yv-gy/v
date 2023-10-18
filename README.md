@@ -5,6 +5,6 @@ i
 
 [so](https://bilibili.com/video/BV1UP41147sj)
 
-~~应该是刷贡献的~~
+~~应该是刷贡献的罢~~
 
 In river
